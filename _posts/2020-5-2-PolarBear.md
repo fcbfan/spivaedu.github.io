@@ -1,0 +1,2 @@
+# Trump Administration Moves Forward With Massive Oil & Gas Project In Alaska Threatening The Survival Of Many Endangered Species
+## Despite the pandemic, the Trump administration is moving ahead with public hearings on the Willow project – a massive oil and gas development being pushed by ConocoPhillips – in the National Petroleum Reserve in Alaska. This project poses a significant threat to polar bears, caribou, and hundreds of thousands of migratory birds which stand to be affected by this new oil development.
